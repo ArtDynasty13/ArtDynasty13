@@ -1,4 +1,4 @@
-### Hi there 👋
+![bio](https://github.com/ArtDynasty13/ArtDynasty13/assets/68573219/f7ff1ec4-0871-4746-b3d5-b34069645478)
 
 <!--
 **ArtDynasty13/ArtDynasty13** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
